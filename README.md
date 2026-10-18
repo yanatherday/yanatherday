@@ -28,6 +28,9 @@
 </td>
 <td align="center">
 
+<table>
+<tr>
+<td width="45%" align="center">
 
 </td>
 </tr>
