@@ -1,13 +1,13 @@
 
 <div align="center">
 
-<!-- TOP LACE / BANNER -->
+
 <img src="./7697.png" width="100%">
 
 <br>
 <𑙕ׁ𐄙 ꠆𓈒. ݂ .𓈒 ꠆𐄙১  ʏᴀɴᴀ⠀⸝⠀ᴀʟʏ ॱֺּׅ༏ིྀ𓏽ִ ౿    ◟𐔌. 𓐇⠀ᥲііᥡ⠀zᶻ  .݂ . 5teᥱᥒ
 ᕱ⑅ᕱ⠀
-
+<br> 
 </div>
 
 <tr>
@@ -18,21 +18,20 @@
 </td>
 <td align="center">
 
-♡ BYI ♡
+<a href="https://discord.gg/kNgP6qhy">
+♡ discord
+</a>
 
 <br><br>
 
-♡ DNI ♡
-
-<br><br>
-
-♡ ABOUT ME ♡
+<a hhref="https://www.tiktok.com/@lechoaplan?_r=1&_t=ZS-9Aehghlvg6n">
+</a>
 
 </td>
 </tr>
 </table>
 
-<!-- CHARACTER IMAGE -->
+
 <div align="center">
 <img src="./7706-Picsart-BackgroundRemover.jpg.png" width="100%">
 </div>
