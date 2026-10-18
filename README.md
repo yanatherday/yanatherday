@@ -6,18 +6,8 @@
 
 <br>
 
-<!-- TITLE IMAGE -->
-<img src="./title.png" width="90%">
-
-<br>
-
-<!-- DECORATIVE LACE -->
-<img src="./lace.png" width="100%">
-
 </div>
 
-<!-- PROFILE SECTION -->
-<table>
 <tr>
 <td width="45%" align="center">
 
