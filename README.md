@@ -17,7 +17,7 @@
 <table>
 <tr>
 <td width="45%">
-<img src="anime.png" width="100%">
+<img src="960f2475b7fa2b249c1df2459472720b.jpg" width="100%">
 </td>
 <td align="center">
 
@@ -35,4 +35,4 @@
 </tr>
 </table>
 
-<img src="lace.png" width="100%">
+<img src="7706-Picsart-BackgroundRemover.jpg.png" width="100%">
