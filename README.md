@@ -1,23 +1,38 @@
 
+
 <div align="center">
 
-# ୨ৎ 𝓵𝓮𝓷𝓲 𝓸𝓻 𝓼𝓪𝓴𝓾𝓻𝓪 ୨ৎ
+<img src="sakura.png" width="100%">
 
-🌸 ୨୧ welcome to my profile ୨୧ 🌸
+<br>
 
-━━━━━━━━━━━━━━━━━━━━
+<img src="title.png" width="90%">
 
-[♡ BYI ♡](#byi)　[♡ DNI ♡](#dni)　[♡ ABOUT ME ♡](#about-me)
+<br>
 
-━━━━━━━━━━━━━━━━━━━━
-
-## BYI ♡
-your notes here
-
-## DNI ♡
-your boundaries here
-
-## ABOUT ME ♡
-hello! welcome to my little corner.
+<img src="lace.png" width="100%">
 
 </div>
+
+<table>
+<tr>
+<td width="45%">
+<img src="anime.png" width="100%">
+</td>
+<td align="center">
+
+♡ BYI ♡
+
+<br><br>
+
+♡ DNI ♡
+
+<br><br>
+
+♡ ABOUT ME ♡
+
+</td>
+</tr>
+</table>
+
+<img src="lace.png" width="100%">
