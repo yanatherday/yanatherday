@@ -32,8 +32,8 @@
 <tr>
 <td width="45%" align="center">
 
-<br>  vanilla ,, xoxo ! 💤
-
+<br> ⎯⎯   vanilla ,, xoxo ! 💤
+<br>   ,,  バニラちゃんに心を奪われました  !  🩵
 
 <div align="center">
 <img src="./7706-Picsart-BackgroundRemover.jpg.png" width="100%">
