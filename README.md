@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<img src="sakura.png" width="100%">
+<img src="7697.png" width="100%">
 
 <br>
 
