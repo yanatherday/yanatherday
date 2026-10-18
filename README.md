@@ -19,12 +19,13 @@
 <td align="center">
 
 <a href="https://discord.gg/kNgP6qhy">
-♡ discord
+  !!  discord
 </a>
 
 <br><br>
 
-<a hhref="https://www.tiktok.com/@lechoaplan?_r=1&_t=ZS-9Aehghlvg6n">
+<a hhref="https://www.tiktok.com/@lechoaplan?_r=1_t=ZS-9AezLNfwoAj">
+  !!  tiktok
 </a>
 
 </td>
