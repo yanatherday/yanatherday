@@ -14,8 +14,13 @@
 
 <br>  
     🐾 𓈒   ݂ yy   ̣̣̣ .𓏫  <a href="https://discord.gg/kNgP6qhy">
-  my discord >u<  //  int there . im online anytime ! 
-    </a>
+  my discord >u<  //  
+  </a>
+     
+   <br>          
+              int . add me . im online anytime ! 
+
+     
 <tr>
 <td width="45%" align="center">
 
