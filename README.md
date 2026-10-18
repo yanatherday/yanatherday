@@ -12,6 +12,10 @@
    ‿  ˙ ִ    # be my friend plzz,, !!  💤  ૮ ✃ _ ౦ ྀིა
 </div>
 
+<br>  
+    🐾 𓈒   ݂ yy   ̣̣̣ .𓏫  <a href="https://discord.gg/kNgP6qhy">
+  my discord >u<  //  int there . im online anytime ! 
+    </a>
 <tr>
 <td width="45%" align="center">
 
