@@ -32,7 +32,7 @@
 <tr>
 <td width="45%" align="center">
 
- hiyya  ,  im yana/aly. i just started using GitHub again after forgetting whats my pass in my last account !  sadly, i couldn't open it again due to it staying on my old phone which i gave away 😓
+<br>  vanilla ,, xoxo ! 💤
 
 
 <div align="center">
