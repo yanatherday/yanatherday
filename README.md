@@ -11,13 +11,11 @@
 
    ‿  ˙ ִ    # be my friend plzz,, !!  💤  ૮ ✃ _ ౦ ྀིა
 </div>
-
 <br>  
     🐾 𓈒   ݂ yy   ̣̣̣ .𓏫  <a href="https://discord.gg/kNgP6qhy">
   my discord >u<  //  
   </a>
-     
-   <br>          
+<br>          
               int . add me . im online anytime !                                             luvlyyana
 
      
