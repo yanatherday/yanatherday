@@ -16,7 +16,7 @@
   my discord >u<  //  
   </a>
 <br>          
-              int . add me . im online anytime !                                             luvlyyana
+              int . add me . im online anytime !                                            .  luvlyyana
 
      
 <tr>
