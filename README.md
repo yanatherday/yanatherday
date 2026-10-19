@@ -5,14 +5,14 @@
 <img src="7766.jpg" width="100%">
 
 <br>
-<𑙕ׁ𐄙 ꠆𓈒. ݂ .𓈒 ꠆𐄙১  loudlyburps ॱֺּׅ༏ིྀ𓏽ִ ౿    ◟𐔌. 𓐇⠀ᥲііᥡ⠀zᶻ  .݂ . yythr. 
+<𑙕ׁ      ,,  loudlyburps ॱֺּׅ𓏽ִ     ◟𐔌. 𓐇⠀ᥲііᥡ⠀zᶻ  .݂ . yythr. 
 ᕱ⑅ᕱ⠀
 <br> 
 
    ‿  ˙ ִ    # The Other Side  - GRANRODEO,, !!  👀 
 </div>
 <br>  
-    🍀 𓈒   ݂ yy   ̣̣̣ .𓏫  <a href="https://discord.gg/kNgP6qhy">
+    🍀 𓈒   ݂ tm   ̣̣̣ .𓏫  <a href="https://discord.gg/kNgP6qhy">
   my discord >u<  //  
   </a>
 <br>          
