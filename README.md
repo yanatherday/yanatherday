@@ -2,7 +2,7 @@
 <div align="center">
 
 
-<img src="./7769.png" width="100%">
+<img src=".7769.png" width="100%">
 
 <br>
 <𑙕ׁ𐄙 ꠆𓈒. ݂ .𓈒 ꠆𐄙১  loudlyburps ॱֺּׅ༏ིྀ𓏽ִ ౿    ◟𐔌. 𓐇⠀ᥲііᥡ⠀zᶻ  .݂ . 5teᥱᥒ
@@ -23,7 +23,7 @@
 <tr>
 <td width="45%" align="center">
 
-<img src="./7766.jpg." width="100%">
+<img src=".7766.jpg." width="100%">
 
 </td>
 <td align="center">
