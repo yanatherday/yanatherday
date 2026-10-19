@@ -33,7 +33,7 @@
 <td width="45%" align="center">
 
 <br> ⎯⎯   takao ,, midorima ! 🦅 .  🐸
-<br>  🐸 ,,  バニラちゃんに心を奪われました  !  🦅
+<br>  🐸 ,,  midorima is just a tsundere.  🦅
 
 <div align="center">
   <img src="54dbe55810b88d3a636d2e10f2eff92a (1).gif" width="500">
