@@ -9,10 +9,10 @@
 ᕱ⑅ᕱ⠀
 <br> 
 
-   ‿  ˙ ִ    # be my friend plzz,, !!  💤  ૮ ✃ _ ౦ ྀིა
+   ‿  ˙ ִ    # be my friend plzz,, !!  👀  ૮ ✃ _ ౦ ྀིა
 </div>
 <br>  
-    🐾 𓈒   ݂ yy   ̣̣̣ .𓏫  <a href="https://discord.gg/kNgP6qhy">
+    🍀 𓈒   ݂ yy   ̣̣̣ .𓏫  <a href="https://discord.gg/kNgP6qhy">
   my discord >u<  //  
   </a>
 <br>          
@@ -32,8 +32,8 @@
 <tr>
 <td width="45%" align="center">
 
-<br> ⎯⎯   vanilla ,, xoxo ! 💤
-<br>  🐾 ,,  バニラちゃんに心を奪われました  !  🩵
+<br> ⎯⎯   takao ,, midorima ! 🦅 .  🐸
+<br>  🐸 ,,  バニラちゃんに心を奪われました  !  🦅
 
 <div align="center">
   <img src="54dbe55810b88d3a636d2e10f2eff92a (1).gif" width="500">
