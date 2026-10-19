@@ -23,7 +23,7 @@
 <tr>
 <td width="45%" align="center">
 
-<img src="7769.png" width="100%">
+<img src="7769-1.png" width="100%">
 
 </td>
 <td align="center">
